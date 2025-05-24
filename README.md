@@ -1,1 +1,0 @@
-I understand this project isnt completed at all but handing it in like this so I dont pay the late submission fee
